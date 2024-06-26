@@ -2,7 +2,7 @@
 
 Meu Nome é Miguel e tÔ aqui por nota 😃
 
- - [Alura](https://www.alura.com.br/) Star, me pediu para vir aqui 🥰 (nem sei mexer nisso)
+ - [Alura Star](https://media1.tenor.com/m/MD4v2Ebex-IAAAAC/ugh-anxiety.gif), me pediu para vir aqui 🥰 (nem sei mexer nisso)
  - Estudando Progamação por Obrigação🫠
 
    ### Quaso queira entrar em contato 📧
